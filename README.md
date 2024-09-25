@@ -1,1 +1,1 @@
-![](<div class="tenor-gif-embed" data-postid="19634526" data-share-method="host" data-aspect-ratio="1.17216" data-width="100%"><a href="https://tenor.com/view/griffith-berserk-gif-19634526">Griffith Berserk GIF</a>from <a href="https://tenor.com/search/griffith-gifs">Griffith GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+##oI##
