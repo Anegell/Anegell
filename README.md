@@ -1,1 +1,1 @@
-![](https://tenor.com/pt-BR/view/griffith-berserk-gif-19634526)
+![](https://tenor.com/buxZ4.gif)
